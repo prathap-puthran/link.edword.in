@@ -1,1 +1,1 @@
-#hello link.edword.in is created for shorterning my website links
+#hello link.edword.in is created for shortening my website links
